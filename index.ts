@@ -70,7 +70,7 @@ async function run(url: { loc: string }, rerun = true) {
 
     await ensureFile(`./posts/${path.replace('.html', '')}.md`)
     try {
-        await Deno.writeTextFile(`./posts/${path}.md`, tdsserver.turndown(doc))
+        await Deno.writeTextFile(`./posts/${path.replace('.html', '')}.md`, tdsserver.turndown(doc))
     } catch (e) {
         if (rerun) {
             sleep(500)

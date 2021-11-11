@@ -1,0 +1,5 @@
+Sophomore Year  
+
+-----------------
+
+Tenth grade (sophomore) seminars continue the exploration process with the introduction to the concept of a career.  The "Explore Careers" aspect of Naviance is used in depth to help students to identify their passions, skills sets, and areas of aptitude.  The career is also examined through the lens of the course selection process at BHS with respect to academic, vocational, and the arts courses.  Sophomore seminars begin the discussion of presenting oneself beyond the walls of Brookline High School.  Students are given their transcripts and presented with BHS GPA calculations and a review of graduation requirements.  Counselors speak with students regarding the concepts of "netiquitte" (web privacy and responsibility), the "professional" email address, and the creation of a resume.  Students are introduced to the college timetable here as well.  Standardized testing, mostly through MCAS administration and PSAT's, is brought up for discussion as well.  Sophomore seminars take place during the advisory period beginning in mid March.

@@ -1,0 +1,8 @@
+Junior Year  
+
+--------------
+
+  
+[Junior Seminar Guidance Handout is available here: this is the information we hand out to juniors during guidance seminar.](/uploads/8/0/1/5/801512/2020_jr_seminar_packet.pdf)  
+  
+Eleventh grade (junior) seminars put the self reflection from previous years' exercises into a post secondary plan of action.  Students are again given their transcripts and are encouraged to put the college and career search engines in Naviance to work for them.  Standardized testing is covered in depth with individual meetings beginning in mid December.  The college process is explained to parents on the junior parent night in early February followed by the college fair in March.  Families are encouraged to have college planning meetings with the counselors throughout the spring semester.  The junior seminar sessions are more general, with the focus on the process of making a college list, speaking to teachers regarding recommendations, and teeming the application with outside activities.  The family meetings are more specific with the examination of actual lists, setting of reach, target, and likely schools, and strategies such as early application, athletic interest, and financial implications.  Course selections are discussed in seminar and individual meetings with respect to graduation requirements and schedule strength for applications.  Junior seminars begin in February and continue in April during tenth grade MCAS administration.

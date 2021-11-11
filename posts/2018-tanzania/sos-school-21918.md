@@ -1,0 +1,17 @@
+[SOS School Visit 2/19/18](//bhs.brookline.k12.ma.us/2018-tanzania/sos-school-21918)
+
+			
+-----------------------------------------------------------------------------------------
+
+		2/22/2018
+	
+
+Our day started off early as usual, and we set off to catch a bus to the SOS school at 8:00. We got to the school and found out that we’d first be having a conversation with a group of older students, ranging from grades 10-12, or forms 4-6. We sat alternating SOS and BHS students and were immediately struck by just how good at English they all were. We started off the discussion with the topic of Americans’ perspectives on Africa and Tanzania, and Tanzanians’ perspectives on America. We learned that Mean Girls epitomized these students’ perception of American high school culture and told of the books we read and movies we watched growing up that painted Africa as a continent of wild animals and inhuman people. We discussed Islam and conclusions Americans often draw regarding women’s rights, as well as listened as multiple students spoke of the Qur’an and how terrorism cannot possibly stem from its teachings. The SOS students were baffled to hear of our lack of a dress code, and we discussed with them the notion that with more freedom comes more responsibility. Our next topic was polygamy, which shortly veered off in several other directions. We learned that one man is allowed four wives, and that on the mainland some have up to twelve. One form 6 student, Farhat, told the room that she would never marry a man that had multiple wives when asked. She said that she plans to “marry for love” and nothing else, and that marriages based solely upon the intent of reproduction are never meaningful. We learned that students are given the equivalent of our sex ed curriculum in religion class, where they learn of healthy relationships — though only in the context of marriage, as the students noted that dating is considered unacceptable (but still happens). It was intriguing to see the SOS students’ reactions to the mention of gay marriage, and though none seemed personally opposed to the notion, it was clear that we had touched upon a topic extremely taboo. To close the discussion, Lyra asked the SOS students how they’d like to be viewed by Americans. We were told to treat them as people, just like us, to create bonds and relationships with people across cultures, and to disregard our preconceived beliefs about Africa as a whole.  
+​  
+We then entered kindergarten classrooms in pairs and sat in on lessons. Wilson and I observed a Swahili lesson in which students came up to the board one at a time to write letters along a line. In all of our respective classrooms, we were swarmed by tiny children eager to touch our hair and sit on our laps. The majority of the group eventually ended up in a room with a lot of blocks being thrown, a lot of stickers being fought over, and too many kids to count. We all made it out alive, and jumped right into a scrimmage with some older boys. I later learned that a few girls requested to play as well but were denied by the headmaster. We were given money for lunch and had a free afternoon which most of us spent shopping and napping. We then had a lovely rooftop dinner and watched the sun set while listening to the call to prayer: a routine I could never grow tired of.  
+  
+Sarah S.  
+
+  
+
+Comments are closed.
